@@ -45,6 +45,10 @@ Discussion of the actual process of "the making of new men" described in his Bla
 
 General discussion of Wittig, discusses her cooption by Écriture féminine. Great read for general history of the feminist movement. “Where it all went wrong”
 
+  - **S.C.U.M. Manifesto** - Valerie Solanas
+
+People tend to disregard it as being biological essentialist but it seems remarkably charitable in a way biological essentialist list isn't known for. Great book, possible guidebook for how to write lol.
+
 ### **Haven't read but seems worth reading:**
 
   - **Close To Home** - Christine Delphy
@@ -66,10 +70,6 @@ General discussion of Wittig, discusses her cooption by Écriture féminine. Gre
   - **What is Gender Nihilism: A Reader** - Various
 
 Huge collection of essays including many materialist feminists. Probably very good. Seems to focus more on race too. 
-
-  - **S.C.U.M. Manifesto** - Valerie Solanas
-
- People tend to disregard it as being biological essentialist but it seems remarkably charitable in a way biological essentialist list isn't known for. Great book, possible guidebook for how to write lol.
  
   - **The Second Sex** - Simone De Beauvoir 
 
