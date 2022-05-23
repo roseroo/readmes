@@ -45,7 +45,7 @@ Discussion of the actual process of "the making of new men" described in his Bla
 
 General discussion of Wittig, discusses her cooption by Écriture féminine. Great read for general history of the feminist movement. “Where it all went wrong”
 
-### **Want to read but seems worth reading:**
+### **Haven't read but seems worth reading:**
 
   - **Close To Home** - Christine Delphy
  
