@@ -36,9 +36,21 @@
  - **Marxism Without Male Supremacy** - Carol Giardina 
 
  Huge part of getting me interested in non-marxist materialist feminisms. Not the best essay for a number of reasons but puts forward some very interesting critiques. Only available on redstockings.org afaik. 
+ 
+ - **The Wretched of the Earth** - Frantz Fanon
+
+Discussion of the actual process of "the making of new men" described in his Black Skin White Masks. Incredibly important just please read after having a solid understanding of Black Skin White Masks.
 
 ### Want to read but seems worth reading: 
 
-  - Resisting Reality: Social Construction and Social Critique - Sally Haslanger 
+  - **Resisting Reality: Social Construction and Social Critique** - Sally Haslanger 
 
  Seems to be problematizing the understanding of social constructs as purely ideological phenomena in a similar way to Colette Guillaumin. 
+ 
+  - **Meditations of Frantz Fanon’s The Wretched of the Earth** - James Yaki Sayles 
+
+ Well known discussion of The Wretched of the Earth by a lifelong Black American activist.  
+ 
+  - **The Second Sex** - Simone De Beauvoir 
+
+Chronically misunderstood but I think definitely worth reading after doing due dilligence with context of what other feminist writers associated with her were arguing (Wittig, Guillaumin, Delphy). 
