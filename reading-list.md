@@ -66,6 +66,10 @@ People tend to disregard it as being biological essentialist but it seems remark
   - **Meditations of Frantz Fanon’s The Wretched of the Earth** - James Yaki Sayles 
 
  Well known discussion of The Wretched of the Earth by a lifelong Black American activist.  
+
+  - **Baedan** - Baedan 
+
+Unabashed "gender insurrectionaries". Unapologetically hostile to naturalized social categories in the best way. Worthwhile read but potentially mostly restates what other people on this list have said. 
  
   - **What is Gender Nihilism: A Reader** - Various
 
