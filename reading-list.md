@@ -3,10 +3,10 @@
 ## Topics to read more on
 
  - Materialist Feminism
+ - Decolonization
  - Schooling
  - Division between mental and physical labor
  - Abolition of division between town and country
- - Decolonization
  - Humanism (or anti/post-humanism)
 
 ## Materialist Feminism / Decolonization
