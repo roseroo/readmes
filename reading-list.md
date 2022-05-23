@@ -65,6 +65,8 @@ General discussion of Wittig, discusses her cooption by Écriture féminine. Gre
  
   - **What is Gender Nihilism: A Reader** - Various
 
+Huge collection of essays including many materialist feminists. Probably very good. Seems to focus more on race too. 
+
   - **S.C.U.M. Manifesto** - Valerie Solanas
 
  People tend to disregard it as being biological essentialist but it seems remarkably charitable in a way biological essentialist list isn't known for. Great book, possible guidebook for how to write lol.
