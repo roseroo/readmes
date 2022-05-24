@@ -1,6 +1,6 @@
 # Reading List
 
-## Topics to read more on
+## Topics I want to read more on
 
  - Materialist Feminism
  - Decolonization
