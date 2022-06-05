@@ -43,7 +43,7 @@
 
  - **The Text as Body/Politics: An Appreciation of Monique Wittig’s Writings in Context** - Helene Wenzel
 
-##### General discussion of Wittig, discusses her cooption by Écriture féminine. Great read for general history of the feminist movement. “Where it all went wrong”
+##### General discussion of Wittig particularly in their historical context. Genuinely invaluable resource for my research.  
 
   - **S.C.U.M. Manifesto** - Valerie Solanas
 
